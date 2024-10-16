@@ -1,1 +1,6 @@
-#My name is Lindelani, i am a Math enthusiast and i am now learning programming, which is really exciting.
+
+
+
+
+
+#I love playing Chess and i think im the best here at shaper
